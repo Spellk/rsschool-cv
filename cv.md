@@ -22,5 +22,4 @@
 
 **Education: higher (lawyer)**
 
-**English level: b2**
-I practice with duоlingo every day
+**English level: b2** (I practice with duоlingo every day)
